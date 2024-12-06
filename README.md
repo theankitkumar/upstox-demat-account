@@ -6,17 +6,17 @@
 
 ## Introduction
 
-![Upstox Trading Platform](images/upstox-trading-platform.png)
+<img src="images/upstox-trading-platform.png" alt="Upstox Trading Platform" width="700"/>
 
 Upstox, formerly known as RKSV Securities, is one of India's leading discount brokers. Backed by industry giants like Ratan Tata and Tiger Global Management, Upstox has quickly emerged as a trusted platform for millions of traders and investors. Whether you're new to investing or a seasoned trader, Upstox offers competitive brokerage rates, robust trading tools, and a user-friendly interface.
 
-👉 [Open Your Free Upstox Account Now! 🚀](https://upstox.com/open-demat-account/?f=xMlY)
+### **👉 [💰 Open Your Free Upstox Account Now! 🚀](https://upstox.com/open-demat-account/?f=xMlY)**
 
 ---
 
 ## Why Choose Upstox?
 
-![Download Upstox App](images/Download Upstox App.webp)
+<img src="images/Download Upstox App.webp" alt="Download Upstox App" width="600"/>
 
 Upstox provides a platform to trade equities, commodities, F&O, currencies, IPOs, mutual funds, and even digital gold. Here are the standout features:
 
@@ -25,7 +25,7 @@ Upstox provides a platform to trade equities, commodities, F&O, currencies, IPOs
 - **Advanced Trading Tools:** Access to Upstox Pro Web and Mobile platforms with 100+ indicators.
 - **Trust and Reliability:** Backed by over **1 crore investors and traders**.
 
-👉 [Start Trading with Upstox 🚀](https://upstox.com/open-demat-account/?f=xMlY)
+### **💰 [Start Trading with Upstox 🚀](https://upstox.com/open-demat-account/?f=xMlY)**
 
 ---
 
@@ -33,27 +33,31 @@ Upstox provides a platform to trade equities, commodities, F&O, currencies, IPOs
 
 ### 1. **Pro Web Trading Platform**
 
-![Upstox Pro Web](images/4yuy.webp)
+<img src="images/4yuy.webp" alt="Upstox Pro Web Trading" width="700"/>
 
 The **Upstox Pro Web** platform is packed with features to make trading seamless:
 - **100+ Indicators:** Tailored for professional-level trading.
 - **Real-Time Data:** Extensive market tracking for confident decision-making.
 - **Customizable Interface:** Built to suit your trading style.
 
+---
+
 ### 2. **Pro Mobile App**
 
-![Upstox Pro Mobile App](images/Upstox-Pro-Mobile-App.webp)
+<img src="images/Upstox-Pro-Mobile-App.webp" alt="Upstox Pro Mobile App" width="700"/>
 
 Trade on-the-go with the **Upstox Pro Mobile App**, available for both Android and iOS:
 - **User-Friendly Design:** Perfect for beginners and pros alike.
 - **Smart Features:** Includes watchlists, filters, and market updates.
 - **Advanced Charting Tools:** Analyze trends with real-time data and technical indicators.
 
-👉 [Experience World-Class Trading Platforms 🚀](https://upstox.com/open-demat-account/?f=xMlY)
+### **💰 [Experience World-Class Trading Platforms 🚀](https://upstox.com/open-demat-account/?f=xMlY)**
 
 ---
 
 ## How to Open an Upstox Demat Account
+
+<img src="images/4yuy.webp" alt="Account Opening Steps" width="600"/>
 
 Opening a Demat account with Upstox is quick and hassle-free. Follow these steps:
 
@@ -71,19 +75,17 @@ Opening a Demat account with Upstox is quick and hassle-free. Follow these steps
 
 Your account will be activated within 24 hours!
 
-![Account Opening Steps](images/Download%20Upstox%20App.webp)
-
-👉 [Open Your Free Upstox Account Today 🚀](https://upstox.com/open-demat-account/?f=xMlY)
+### **👉 [💰 Open Your Free Upstox Account Today 🚀](https://upstox.com/open-demat-account/?f=xMlY)**
 
 ---
 
 ## Conclusion
 
-![Upstox Review](images/Review.webp)
+<img src="images/Review.webp" alt="Upstox Review" width="600"/>
 
 Upstox offers a reliable, cost-effective trading experience for both beginners and seasoned investors. With no account opening fees, minimal brokerage charges, and state-of-the-art platforms, it stands out as one of the top brokers in India. Don't miss the opportunity to join over **1 crore satisfied users**!
 
-👉 [Open Your Free Upstox Account Now! 🚀](https://upstox.com/open-demat-account/?f=xMlY)
+### **👉 [💰 Open Your Free Upstox Account Now! 🚀](https://upstox.com/open-demat-account/?f=xMlY)**
 
 ---
 
